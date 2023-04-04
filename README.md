@@ -1,1 +1,1 @@
-# getachewhundera-resume.github.io
+# getachewhundera.github.io
